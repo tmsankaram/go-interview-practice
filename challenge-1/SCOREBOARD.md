@@ -21,11 +21,14 @@
 | ashwinipatankar | 6 | 6 |
 | bmeverett | 6 | 6 |
 | deloz | 6 | 6 |
+| dhevv8 | 6 | 6 |
 | diyorich | 6 | 6 |
+| globallstudent | 6 | 6 |
 | hodgechung | 6 | 6 |
 | ingingX | 6 | 6 |
 | jasonnfeng | 6 | 6 |
 | jersonzc | 6 | 6 |
+| jordanhimawan | 6 | 6 |
 | krmaxwell | 6 | 6 |
 | lajosbnk | 6 | 6 |
 | lanmanul | 6 | 6 |
